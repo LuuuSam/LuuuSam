@@ -2,7 +2,7 @@
 - 👀 I’m interested in multimedia art
 - 🌱 I’m currently learning git
 - 💞️ I’m looking to collaborate on multimedia art
-- 📫 How to reach me: Send me an email and I'll see if I have time to respond haha
+- 📫 How to reach me: lourdessampol8@gmail.com
 
 
 Hola!
