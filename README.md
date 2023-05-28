@@ -5,7 +5,8 @@
 - 📫 𝙷𝚘𝚠 𝚝𝚘 𝚛𝚎𝚊𝚌𝚑 𝚖𝚎: 𝚕𝚘𝚞𝚛𝚍𝚎𝚜𝚜𝚊𝚖𝚙𝚘𝚕𝟾@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖
 
 
-Hola!
+𝙷𝚎𝚕𝚕𝚘 𝚎𝚟𝚎𝚛𝚢𝚘𝚗𝚎!
+𝙸'𝚖 𝚝𝚛𝚢𝚒𝚗𝚐 𝚝𝚘 𝚋𝚎 𝚊 𝚆𝚎𝚋 𝙳𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛!
 
 <!---
 LuuuSam/LuuuSam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
